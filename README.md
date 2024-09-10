@@ -1,2 +1,2 @@
-# Moira27.github.io
+# Moira McAninch
 About Me IT105 Project
